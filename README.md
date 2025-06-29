@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on **security tools, network setups, or creative tech projects**  
 - 📫 How to reach me: **+94765551309**  
 - 😄 Pronouns: **He/Him**  
-- 🎓 Completed my **Higher Diploma in Cybersecurity and Networking**  
+- 🎓 Undergraduate **Cybersecurity and Digital Forensics**  
 - ⚡ Fun fact: I love keeping my workspace organized and enjoy designing in my free time!  
 
 <!---  
